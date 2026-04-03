@@ -1,1 +1,0 @@
-# S.K.construction-interior
